@@ -1,1 +1,0 @@
-![]('https://jwchan.cn/images/background_header.png')
